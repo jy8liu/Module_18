@@ -29,7 +29,7 @@
 
   ### Video Tutorial
   
-  [Click Here](https://youtu.be/JX9utb2OV-k)
+  [Click Here](https://drive.google.com/file/d/16roef2EC4VH2tR-E6a-npMQuWZDkyvbp/view?usp=sharing)
   
   ## Screenshots
 
